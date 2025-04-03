@@ -2,11 +2,9 @@
 
 FullTG is a tool for Telegram. Simple to install and easy to use. Updates, new features and support for lifetime!
 
-## BUY HERE: https://shorturl.at/QwKeW
+## BUY HERE: https://shorturl.at/92HJQ
 
-VIDEO: https://shorturl.at/GlG5S
-
-For any questions, feel free to ask us on Telegram: https://shorturl.at/9ccME
+VIDEO: https://shorturl.at/4FqhK
 
 ### What are the features?
 This tool has a total of 40 features and tons of dynamic sub-features! New ones will be implemented!
@@ -41,11 +39,9 @@ This tool has a total of 40 features and tons of dynamic sub-features! New ones 
 - AND MANY MORE!
 >All tasks above can be done by selected accounts or all accounts!
 
-## BUY HERE: https://shorturl.at/QwKeW
+## BUY HERE: https://shorturl.at/92HJQ
 
-VIDEO: https://shorturl.at/GlG5S
-
-For any questions, feel free to ask us on Telegram: https://shorturl.at/9ccME
+VIDEO: https://shorturl.at/4FqhK
 
 ## Whats so special about this?
 1. This tool is the first tool, which can scrape more than 10k members at once!
